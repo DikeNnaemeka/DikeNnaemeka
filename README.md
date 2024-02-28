@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Data Analysis/Businness Analysis
 - 🌱 I’m currently learning ... More visualizations tools
 - 💞️ I’m looking to collaborate on ... different projects on Data Analysis/Business Analysis
-- 📫 How to reach me ...nnaemekadike@yahoo.com
+- 📫 How to reach me ...nnaemekadike234@gmail.com
 - 😄 Pronouns: ...Mr/He
 - ⚡ Fun fact: ... Snakes can predict earthquakes.
 
